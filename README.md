@@ -4,9 +4,9 @@
 
 Je opent je laptop. Vol goede moed. *Vandaag ga ik het doen.*
 
-En dan... even Twitter checken. Eén minuutje maar.
+En dan... even Twitter checken. Eén minuutje maar. Of even kijken wat er op LinkedIn gebeurt. Puur professioneel, toch?
 
-45 minuten later zit je naar een video te kijken van een wasbeer die piano speelt.
+45 minuten later zit je naar een video te kijken van een wasbeer die piano speelt. Of je scrollt door je 500e "I'm humbled to announce" post.
 
 **Je dag? Weg.**
 
